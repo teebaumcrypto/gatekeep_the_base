@@ -1,6 +1,11 @@
 # gatekeep_the_base
 Gatekeeping winning to only 6 nations, but advertising it for everyone
 
+twitter thread explaining stuff:
+
+https://twitter.com/0xTeebaum/status/1632322686117453826
+
+
 https://www.coinbase.com/bounty/ethdenver23
 
 
